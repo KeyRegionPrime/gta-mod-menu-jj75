@@ -1,4 +1,4 @@
-
+Inteligente GTA menu de mods traps é o melhor GTA menu de mods traps com mira silenciosa e mira automática. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
